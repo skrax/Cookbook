@@ -7,7 +7,7 @@ Use the metric system.
 
 Serves one.
 ## Recipe
-Write short and precise sentences -> one sentence per line
+Write short and precise sentences -> one sentence per line.
 
 Explain the thoughtprocess, f.e. temperature of ingredients.
 

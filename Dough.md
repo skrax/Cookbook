@@ -47,6 +47,41 @@ Let rest for 30 min in foil or airtigth container.
 
 
 Make balls of 28g and press into thin round shape.  
-Bake in iron pan and wrap into kitchen towel.  
-Always wrap in kitchen towel, otherwise they will dry out won't be flexible.  
+Bake in iron pan.
+When done, wrap the tortilla into a kitchen towel,
+otherwise they will dry out and won't be flexible.  
 
+# Pancake
+- 100g flour
+- 25 g vanilla sugar
+- 1 large egg
+- milk
+- salt
+- ghee
+
+Sift flour.
+Mix sugar with flour and a pinch of salt.
+
+
+Heat up a cast iron pan to medium heat.
+The prepared batter should be able to fill 1.5cm - 2cm high.
+
+
+Add some milk to the dry mix to combine.
+Seperate the egg and add the yolk to the flour mixture.
+Add milk until the mixture can be poured slowly, but not too thick.
+Only mix as much as necessary.
+Add ghee to the batter.
+
+Beat the eggwhite until soft peaks.
+Add batter to eggwhite and roughly combine.
+
+Slightly grease the pan to prevent sticking.
+Pour batter into the pan.
+
+
+Turn the pancake, when the edges turn brown.
+Add ghee underneath and ontop of the pancake.
+
+
+Serve immediately with jam or maple syrup.

@@ -47,7 +47,7 @@ Let rest for 30 min in foil or airtight container.
 
 
 Make balls of 28g and press into thin round shape.  
-Bake in iron pan.
+Bake in iron pan.  
 When done, wrap the tortilla into a kitchen towel,
 otherwise they will dry out and won't be flexible.  
 

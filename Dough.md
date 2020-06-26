@@ -63,25 +63,25 @@ Sift flour.
 Mix sugar with flour and a pinch of salt.
 
 
-Heat up a cast iron pan to medium heat.
+Heat up a cast iron pan to medium heat.  
 The prepared batter should be able to fill 1.5cm - 2cm high.
 
 
-Add some milk to the dry mix to combine.
-Seperate the egg and add the yolk to the flour mixture.
-Add milk until the mixture can be poured slowly, but not too thick.
-Only mix as much as necessary.
-Add ghee to the batter.
+Add some milk to the dry mix to combine.  
+Seperate the egg and add the yolk to the flour mixture.  
+Add milk until the mixture can be poured slowly, but not too thick.  
+Only mix as much as necessary.  
+Add ghee to the batter.  
 
-Beat the eggwhite until soft peaks.
-Add batter to eggwhite and roughly combine.
+Beat the eggwhite until soft peaks.  
+Add batter to eggwhite and roughly combine.  
 
-Slightly grease the pan to prevent sticking.
-Pour batter into the pan.
+Slightly grease the pan to prevent sticking.  
+Pour batter into the pan.  
 
 
-Turn the pancake, when the edges turn brown.
-Add ghee underneath and ontop of the pancake.
+Turn the pancake, when the edges turn brown.  
+Add ghee underneath and ontop of the pancake.  
 
 
 Serve immediately with jam or maple syrup.

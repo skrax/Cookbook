@@ -5,7 +5,7 @@
 
 Use roomtemperature eggs or warm water.  
 Mix until dough is smooth.  
-Let the dough relax for 30min in foil or airtigth container.  
+Let the dough relax for 30min in foil or airtight container.  
 Continue with pasta making.  
 Freeze immediately or hang to dry.  
 
@@ -43,7 +43,7 @@ Add toppings as desired, while not overcrowding for optimal baking process.
 
 Mix until smooth and add more flour/water if dough is sticky/dry.  
 Flour surface and kneed until firm.  
-Let rest for 30 min in foil or airtigth container.  
+Let rest for 30 min in foil or airtight container.  
 
 
 Make balls of 28g and press into thin round shape.  

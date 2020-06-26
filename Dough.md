@@ -59,7 +59,7 @@ otherwise they will dry out and won't be flexible.
 - salt
 - ghee
 
-Sift flour.
+Sift flour.  
 Mix sugar with flour and a pinch of salt.
 
 

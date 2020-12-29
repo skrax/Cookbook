@@ -41,15 +41,14 @@ Add toppings as desired, while not overcrowding for optimal baking process.
 - salt
 
 
-Mix until smooth and add more flour/water if dough is sticky/dry.  
-Flour surface and kneed until firm.  
+Kneed until the dough does not stick and starts to get firm.  
 Let rest for 30 min in foil or airtight container.  
 
 
 Make balls of 28g and press into thin round shape.  
 Bake in iron pan.  
-When done, wrap the tortilla into a kitchen towel,
-otherwise they will dry out and won't be flexible.  
+When done, wrap the tortilla into a kitchen towel.
+Otherwise they will dry out and won't be flexible.  
 
 # Pancake
 - 100g flour
